@@ -1,0 +1,1 @@
+# lipsoma2valores
